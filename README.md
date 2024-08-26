@@ -7,4 +7,6 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 Você pode entrar em contato comigo por esse email
 escolar  00001108821145sp@al.educacao.sp.gov.br
 ou por esses 00001108821145sp@aluno.educacao.sp.gov.br
+
+
 lucasdanie0421kingd@gmail.com
